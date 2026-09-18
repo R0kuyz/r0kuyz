@@ -1,4 +1,4 @@
-# Hi, I'm Dwifa Naura Iskandar 👋
+# Hi, I'm Dwifa Naura 👋
 
 > "The quieter you become, the more you are able to hear." 🔥
 
