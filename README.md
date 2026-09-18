@@ -1,4 +1,4 @@
-# Hi, I'm Dwifa Naura 👋
+# Hi, I'm r0kuyz! 👋
 
 > "The quieter you become, the more you are able to hear." 🔥
 
